@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ClaymanMD
+- 👀 I’m interested in Board games, hiking, lots of things. hit me up or ask me anything.
+- 🌱 I’m currently learning Game Design.
+- 💞️ I’m looking to collaborate on im not.
+- 📫 How to reach me talk to me in person
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: i dont have any
